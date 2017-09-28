@@ -1,3 +1,0 @@
-trying hard
-
-third line
